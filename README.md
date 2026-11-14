@@ -5,8 +5,7 @@
 <p align="center"> <small>they/them or star/stars</small>
 
 <p align="center"> ᲼
-  <p align="center"> <img src="https://file.garden/ad22qlqDaT8zhrUJ/Screenshot%202026-11-13%20220759.png">
-    <p align="center"> cute pagedoll will go here
+  <p align="center"> <img src="https://file.garden/ad22qlqDaT8zhrUJ/IMG_6823.gif">
 <p align="center"> ᲼
   
 <p align="center"> <img src="https://64.media.tumblr.com/3694b0f26f196c4ca5b1c2cdb04f7cb6/63e8b22de1fa678d-9a/s2048x3072/073c278e9ba37c7b4fb5e468c44367e671de5dfb.pnj">
